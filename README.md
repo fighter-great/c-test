@@ -1,0 +1,3 @@
+# c-test
+练习C语言
+ss://YWVzLTEyOC1nY206MDI2YjAyZmYtNWUxMS00YTkwLTk5YjAtZjY5YjEzZjM2Yjlj@fast10.wl-node1.com:22005#%F0%9F%87%BA%F0%9F%87%B8%20%20%E7%BE%8E%E5%9B%BD
